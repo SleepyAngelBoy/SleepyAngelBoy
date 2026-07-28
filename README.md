@@ -4,6 +4,8 @@ He/She/They
 
 DNI
 
+I can’t believe I have to say this…BUT DON’T USE THE EMOTES TO IMITATE HUMPING OR HAVING INTERCOURSE WITH MY AVATAR. It’s disgusting, it makes me EXTREMELY uncomfortable, and it is NOT funny. If you do this, you will be PERMANENTLY blocked with no chance of being unblocked. No exceptions, and I will NOT hear you out. 
+
 Sexual jokes or advances 
 
 Pro/com/darkshippers
