@@ -4,7 +4,7 @@ He/She/They
 
 DNI
 
-I can’t believe I have to say this…BUT DON’T USE THE EMOTES TO IMITATE HUMPING OR HAVING INTERCOURSE WITH MY AVATAR. It’s disgusting, it makes me EXTREMELY uncomfortable, and it is NOT funny. If you do this, you will be PERMANENTLY blocked with no chance of being unblocked. No exceptions, even if it was “just a joke”.
+I can’t believe I have to say this…BUT DON’T HUMP OR PRETEND TO HAVE INTERCOURSE WITH MY PONY. It’s disgusting, it makes me EXTREMELY uncomfortable, and it is NOT funny. If you do this, you will be PERMANENTLY blocked with no chance of being unblocked. No exceptions, even if it was “just a joke”.
 
 Sexual jokes or advances 
 
