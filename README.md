@@ -8,7 +8,7 @@ I can’t believe I have to say this…BUT DON’T HUMP OR PRETEND TO HAVE INTER
 
 Sexual jokes or advances (AS STATED ABOVE)
 
-Pit ships, Dark Pit ships, Hani ships, animated series ENA ships.
+Pit ships, Dark Pit ships, Hani ships, animated series ENA ships (this includes yumeships. yumeshipping is valid but I’m personally uncomfortable with yumes of my kins interacting).
 
 People who sexualize minors, fictional or not; I cannot stress this enough. 
 
