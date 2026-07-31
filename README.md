@@ -8,7 +8,7 @@ I can’t believe I have to say this…BUT DON’T HUMP OR PRETEND TO HAVE INTER
 
 Sexual jokes or advances (AS STATED ABOVE)
 
-If you sexualize or romanticize minors or fictional characters who are minors (especially Pit, Dark Pit, Hani, Young Link, Toon Link, or Eleven), please block me immediately. I don’t care whether they’re fictional or not; this behavior makes me extremely uncomfortable and I do not want to interact with anyone who participates in it or even tolerates it. 
+If you sexualize or romanticize minors or fictional characters who are minors (especially Pit, Dark Pit, Hani, Young Link, Toon Link, or Eleven), please block me immediately. We will not get along. I don’t care whether they’re fictional or not; this behavior makes me extremely uncomfortable and I do not want to interact with anyone who participates in it or even tolerates it. 
 
 Pro/com/darkshippers
 
