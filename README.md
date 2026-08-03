@@ -36,6 +36,6 @@ I will sometimes go SV (semi verbal) or NV (nonverbal) so do not expect me to ta
 
 Additional information:
 
-If you also kin Pit and/or Hani, please interact with care and caution. You’re still 100% valid; I’m just unsure around doubles for now.
+If you also kin Pit and/or Hani, please IWEC or just DNI. You’re still 100% valid; I’m just unsure around doubles for now.
 
 If you have any more questions, do not hesitate to ask.
